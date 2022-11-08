@@ -1,5 +1,4 @@
 A.S CANTINHO DO JEANS
-https://drive.google.com/file/d/1pb0XiT-OVtxQ_uATemsJn1NuDMVpimrT/view?usp=sharing
 
 
 SHORTS APARTIR DE R$40,00
