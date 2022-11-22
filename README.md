@@ -42,7 +42,11 @@ facebook
 cantinho do jeans
 
 contato
-
 41 97070-7070
+
+todas as peças da loja com 20% de desconto
+
+aceitamos os cartões abaixo
+https://investidorsardinha.r7.com/aprender/bandeiras-de-cartao-de-credito/
 
 
