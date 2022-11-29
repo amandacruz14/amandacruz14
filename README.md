@@ -35,7 +35,7 @@ JAQUETAS JEANS APARTIR DE R$ 80,00
 
 ![Image](https://user-images.githubusercontent.com/114511947/193905538-040acc2f-97c5-4dd6-9165-6c6746889124.jpg)
  
- NOSSAS REDES SOCIAIS AQUI EMBAIXO
+ NOSSAS REDES SOCIAIS:
  
 INSTAGRAM
 @cantinho_do_jeans
