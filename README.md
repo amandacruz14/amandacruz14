@@ -1,7 +1,7 @@
 A.S CANTINHO DO JEANS
 
 
-SHORTS APARTIR DE R$40,00
+SHORTS A PARTIR DE R$ 40,00
 
 ![Image](https://user-images.githubusercontent.com/114511947/193902164-d9a0b508-96ee-44fc-8cf0-e20845f605bf.jpg)
 
@@ -17,7 +17,7 @@ SHORTS APARTIR DE R$40,00
 
 
 
-CALÇAS JEANS APARTIR  DE R$60,00
+CALÇAS JEANS APARTIR  DE R$ 60,00
 
 ![Image](https://user-images.githubusercontent.com/114511947/193904675-f704aa6e-7f89-424d-859a-dd31d0040917.jpg)
 
@@ -27,7 +27,7 @@ CALÇAS JEANS APARTIR  DE R$60,00
 
 
 
-JAQUETAS JEANS APARTIR DE R$80,00
+JAQUETAS JEANS APARTIR DE R$ 80,00
 
 ![Image](https://user-images.githubusercontent.com/114511947/193905358-f4fc2157-20e8-48fb-a584-b668bd79e9a2.jpg)
 
