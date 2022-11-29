@@ -46,7 +46,11 @@ contato
 
 todas as peças da loja com 20% de desconto
 
-aceitamos os cartões abaixo
+NO PIX OU À VISTA 
+
+ACEITAMOS OS CARTÕES ABAIXO
+
+Com 10% de desconto
 ![image](https://user-images.githubusercontent.com/114511947/203371531-5f90f12d-1883-4fba-a96f-f60c3dd24e0c.png)
 
 
